@@ -1,6 +1,8 @@
 # Hi there 👋
 ## My name is Paola Ferreyra but people call me Poli 🤗
 
+#### I am from Buenos Aires, Argentina
+
 👩‍💻I am currently studying Front End Development
 
 👩‍🏫 🧘‍♀️ I am a professional in special education and a yoga teacher

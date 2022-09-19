@@ -8,7 +8,7 @@
 👩‍🏫 🧘‍♀️ I am a professional in special education and a yoga teacher
 
 👩‍🍳I love cooking, ☀️enjoy sunny days
-and crochet🧶
+and knitting crochet🧶
 
 I will be sharing my projects here 😉
 

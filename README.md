@@ -12,8 +12,6 @@ and knitting crochet🧶
 
 I will be sharing my projects here 😉
 
-*I appreciate your comments* 💬
-
 <!--
 **poliferreyra/poliferreyra** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
